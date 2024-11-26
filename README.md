@@ -1,1 +1,1 @@
-# GU-Tech
+# GU-TECH
